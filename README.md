@@ -19,11 +19,28 @@ https://cubebrush.co/marketplace?q=artschool&product_id=r9fbuw
 ![CASTLE](https://user-images.githubusercontent.com/3318539/188526853-304d8f45-5596-4a99-962a-8e255d28c0af.jpg)
 
 
-## Started Nude Figure Drawing
+## Nude Figure Drawing
 
-## Started Nude Figure Drawing
+### Finished videos/theory, now just continuing to practice the techniques daily
+
+### Day 1
+
+![nudeDrawingPracticeCubesAndCylinders](https://user-images.githubusercontent.com/3318539/188808137-b08e1497-2cf1-42df-8eb4-cdd3da97cb07.jpg)
+
+![nudeDrawingPracticeHumans](https://user-images.githubusercontent.com/3318539/188808146-b467fe6f-b99a-4d81-b544-77beac29ef4f.jpg)
+
+### Day 2
+
+![nudeDrawingPracticeCubesAndCylinders](https://user-images.githubusercontent.com/3318539/188808163-22c556ae-b44d-4f60-b951-8e6652471ee0.jpg)
+
+![nudeDrawingPracticeActionLines](https://user-images.githubusercontent.com/3318539/188808181-0f21e3c1-cbf3-4fbf-a725-1356aeda20b0.jpg)
+
+![nudeDrawingPractice10Skeletons-ActonLines-Head-Torso-Pelvis-Joins-OverRef1](https://user-images.githubusercontent.com/3318539/188808187-5fc9ea36-3069-4deb-bf6c-645b6202113a.jpg)
+
+![nudeDrawingPractice5Skeletons-CylinderLimbs-OverRef](https://user-images.githubusercontent.com/3318539/188808192-a05f1524-8b09-457e-830b-08d7a3de30b2.jpg)
 
 ## Started  Perspective 1
+
 
 
 # Pen(Windows) settings
