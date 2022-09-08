@@ -39,6 +39,18 @@ https://cubebrush.co/marketplace?q=artschool&product_id=r9fbuw
 
 ![nudeDrawingPractice5Skeletons-CylinderLimbs-OverRef](https://user-images.githubusercontent.com/3318539/188808192-a05f1524-8b09-457e-830b-08d7a3de30b2.jpg)
 
+
+### Day 3
+
+![1---Pen-Controlpractice](https://user-images.githubusercontent.com/3318539/189046568-bc534224-68a3-4574-9c0b-f183bc433e94.jpg)
+
+![nudeDrawingPracticeActionLines](https://user-images.githubusercontent.com/3318539/189046574-0e0b3a35-d116-4675-a342-09155da0799b.jpg)
+
+![nudeDrawingPracticeCubesAndCylinders](https://user-images.githubusercontent.com/3318539/189046578-cab48109-ac67-425b-98f1-2109ab2bef7b.jpg)
+
+![nudeDrawingPractice10Skeletons-ActonLines-Head-Torso-Pelvis-Joins-OverRef](https://user-images.githubusercontent.com/3318539/189046588-8a3450eb-2538-4028-af95-32a471c178ea.jpg)
+
+
 ## Started  Perspective 1
 
 
